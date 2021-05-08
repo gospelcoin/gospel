@@ -20,6 +20,6 @@ The total amount of GOSP is 1000 TRILLION, and the total amount of airdrop is 10
 6.Fortunately, there's a 1% chance you'll get an extra 50% of the deal value
 
 
-#join telegram:
+# Join Telegram:
 
 https://t.me/gospel_vip
