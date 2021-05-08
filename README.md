@@ -18,3 +18,8 @@ The total amount of GOSP is 1000 TRILLION, and the total amount of airdrop is 10
 5. HOLDING GOSP automatically gets a share of the transaction, and the more you hold, the more you get, 10% taxfee for each transaction, 1% auto Burn, 5% auto destruction, 2% auto for the lucky fund, 2% auto for liquidity
 
 6.Fortunately, there's a 1% chance you'll get an extra 50% of the deal value
+
+
+#join telegram:
+
+https://t.me/gospel_vip
